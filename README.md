@@ -1,0 +1,3 @@
+# masterduck.github.io
+
+# Welcome :)
